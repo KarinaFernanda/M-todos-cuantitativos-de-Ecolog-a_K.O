@@ -1,1 +1,1 @@
-# M-todos-cuantitativos-de-Ecolog-a_K.O
+# Metodos-cuantitativos-de-Ecologia_K.O
